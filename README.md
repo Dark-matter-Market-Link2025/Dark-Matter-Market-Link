@@ -1,7 +1,5 @@
 # Dark Matter Market Link
 Explore the hidden depths of the darknet with verified dark matter market links
-Dark Matter Market 🌌🔗
-The Shadows Await
 
 Explore the abyss of the darknet with verified Dark Matter Market links. Accessible only through Tor, this marketplace operates in the deepest layers of the encrypted web.
 
